@@ -10,3 +10,16 @@ ACHTUNG!! ACHTUNG!!
 THIS IS NOT A VIRUS
 THIS IS A FRIENDLY DOLPHIN
 DOLPHINS CAN BE TRUSTED!
+
+
+
+
+
+yeaaaaahhhhhhh booiiiiiiiiiiiiiiiiiii
+
+
+oh shit waddup
+
+
+
+way
